@@ -9,7 +9,8 @@
 <p align="center">${{\color{#971d1d}\Huge{\texttt{⟡﹒ NVANI ☓ they  ;  it}}}}$</p>
 <p align="center">${{\color{#ad1f1f}\Huge{\texttt{nb . les ✿ genderfloret ≧≦﹒﹒}}}}$</p>
 <p align="center">${{\color{#cc2020}\Huge{\texttt{⪩⪨ HUGE tøp lovr ﹙ clikkie ﹚}}}}$</p>
-<p align="center">${{\color{#ed2323}\Huge{\texttt{josh laner}}}}$</p>
+<p align="center">${{\color{#ed2323}\Huge{\texttt{josh laner !! call me spooky :3}}}}$</p>
+<p align="center">${{\color{#ff1b1b}\Huge{\texttt{lil more then half srs ...... spooky is a sick name}}}}$</p>
 
 <div align="center">
   <a href="https://dividers.crd.co/assets/images/gallery09/1f975df8.png?v=05d33f91" target="_blank"><img width="750" src="https://dividers.crd.co/assets/images/gallery09/1f975df8.png?v=05d33f91" alt="A black, dotted line divider with a black heart in the middle."></a>
