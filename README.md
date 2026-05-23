@@ -6,6 +6,15 @@
   <img width="690" src="https://64.media.tumblr.com/222a9e5110768f1f8d19a1ed3b494dd6/779aa251fd339498-5a/s2048x3072/f5c29d782779149c9249c8c09a44f2be9c03bed5.pnj">
 </p>
 
+ <p align="center"
+   
+NVANI  ᶻ 𝗓 𐰁  "   clemintime   "
+they ⸝⸝  it lun  (  +  he  )
+⌞ librafluid ⌝  unlabeled
+۶۟ৎ  regiment lover  .   highschooler
+₍^. .^₎Ⳋ
+
+</p>
 
 <p align="center">
 <a href="https://hits.sh/github.com/nvanifang/hits/"><img alt="Hits" src="https://hits.sh/github.com/nvanifang/hits.svg?label=visitors&color=9f9f9f"/></a>
