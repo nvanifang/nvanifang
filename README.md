@@ -6,15 +6,15 @@
   <img width="690" src="https://64.media.tumblr.com/222a9e5110768f1f8d19a1ed3b494dd6/779aa251fd339498-5a/s2048x3072/f5c29d782779149c9249c8c09a44f2be9c03bed5.pnj">
 </p>
 
- <p align="center"
+ <p align="center">
 NVANI  ᶻ 𝗓 𐰁  "   clemintime   "</p>
- <p align="center"
+ <p align="center">
 they ⸝⸝  it lun  (  +  he  )</p>
- <p align="center"
+ <p align="center">
 ⌞ librafluid ⌝  unlabeled</p>
- <p align="center"
+ <p align="center">
 ۶۟ৎ  regiment lover  .   highschooler</p>
- <p align="center"
+ <p align="center">
 ₍^. .^₎Ⳋ</p>
 
 <p align="center">
