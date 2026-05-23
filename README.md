@@ -1,21 +1,8 @@
-<div align="center">
-  <a href="[https://media.discordapp.net/attachments/1169811007942709318/1364747611524825099/Untitled1841_20250423193940.png?ex=680acbc2&is=68097a42&hm=de1cd8814eaa8a237130fab7c31c5850db01bce50d0d7c4aa6d259d03306e18a&=&format=webp&quality=lossless&width=1046&height=716"><img width="500" src="https://media.discordapp.net/attachments/1169811007942709318/1364747611524825099/Untitled1841_20250423193940.png?ex=680acbc2&is=68097a42&hm=de1cd8814eaa8a237130fab7c31c5850db01bce50d0d7c4aa6d259d03306e18a&=&format=webp&quality=lossless&width=1046&height=716" alt="Customized Josh Dun icon taken from the Fairly Local MV.](https://i.pinimg.com/736x/1b/29/5f/1b295f1ed882ffb76e5bddb9b2e6ae58.jpg)"></a>
-</div> 
+<p align="center"
+<p><img src= "https://media.discordapp.net/attachments/1169811007942709318/1507553351393611827/1b295f1ed882ffb76e5bddb9b2e6ae58.png?ex=6a1251f7&is=6a110077&hm=d4cb4f8da67cd4d4efc5d1976c6e5d03226346b927c7af5701c8adda040838fb&=&format=webp&quality=lossless" height="370"></p>
+<p align="center
 
-<div align="center">
-  <a href="https://dividers.crd.co/assets/images/gallery09/1f975df8.png?v=05d33f91" target="_blank"><img width="750" src="https://dividers.crd.co/assets/images/gallery09/1f975df8.png?v=05d33f91" alt="A black, dotted line divider with a black heart in the middle."></a>
-</div> 
 
-<p align="center">${{\color{#971d1d}\Huge{\texttt{⟡﹒ NVANI ☓ they  ;  it}}}}$</p>
-<p align="center">${{\color{#ad1f1f}\Huge{\texttt{nb . les ✿ genderfloret ≧≦﹒﹒}}}}$</p>
-<p align="center">${{\color{#cc2020}\Huge{\texttt{⪩⪨ HUGE tøp lovr ﹙ clikkie ﹚}}}}$</p>
-<p align="center">${{\color{#ed2323}\Huge{\texttt{josh laner !! call me spooky :3}}}}$</p>
-<p align="center">${{\color{#ff1b1b}\Huge{\texttt{lil more then half srs}}}}$</p>
-<p align="center">${{\color{#ff0000}\Huge{\texttt{spooky is lowkey a sick name}}}}$</p>
-
-<div align="center">
-  <a href="https://dividers.crd.co/assets/images/gallery09/1f975df8.png?v=05d33f91" target="_blank"><img width="750" src="https://dividers.crd.co/assets/images/gallery09/1f975df8.png?v=05d33f91" alt="A black, dotted line divider with a black heart in the middle."></a>
-</div> 
 
 <div align="center">
 
