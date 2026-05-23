@@ -7,7 +7,7 @@
 </p>
 
  <p align="center">
-NVANI  ᶻ 𝗓 𐰁  "   clementines   "</p>
+NVANI  ᶻ 𝗓 𐰁  "   clementine   "</p>
  <p align="center">
 they ⸝⸝  it lun  (  +  he  )</p>
  <p align="center">
