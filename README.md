@@ -6,7 +6,7 @@
 <a href="https://hits.sh/github.com/nvanifang/hits/"><img alt="Hits" src="https://hits.sh/github.com/nvanifang/hits.svg?label=visitors&color=9f9f9f"/></a>
 </p>
 
-<p align="center">
+<p align="center"
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31k7vhjsvhlxjflnngd3qsd5bytu&cover_image=true&theme=novatorem&show_offline=true&background_color=40071c&interchange=false&bar_color=9a1e1e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
