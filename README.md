@@ -7,14 +7,15 @@
 </p>
 
  <p align="center"
-   
-NVANI  ᶻ 𝗓 𐰁  "   clemintime   "
-they ⸝⸝  it lun  (  +  he  )
-⌞ librafluid ⌝  unlabeled
-۶۟ৎ  regiment lover  .   highschooler
-₍^. .^₎Ⳋ
-
-</p>
+NVANI  ᶻ 𝗓 𐰁  "   clemintime   "</p>
+ <p align="center"
+they ⸝⸝  it lun  (  +  he  )</p>
+ <p align="center"
+⌞ librafluid ⌝  unlabeled</p>
+ <p align="center"
+۶۟ৎ  regiment lover  .   highschooler</p>
+ <p align="center"
+₍^. .^₎Ⳋ</p>
 
 <p align="center">
 <a href="https://hits.sh/github.com/nvanifang/hits/"><img alt="Hits" src="https://hits.sh/github.com/nvanifang/hits.svg?label=visitors&color=9f9f9f"/></a>
