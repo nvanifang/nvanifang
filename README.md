@@ -3,6 +3,11 @@
 </p>
 
 <p align="center">
+  <img width="690" height="450" src="https://files.catbox.moe/9n0j5a.gif">
+</p>
+
+
+<p align="center">
 <a href="https://hits.sh/github.com/nvanifang/hits/"><img alt="Hits" src="https://hits.sh/github.com/nvanifang/hits.svg?label=visitors&color=9f9f9f"/></a>
 </p>
 
