@@ -1,5 +1,5 @@
 <div align="center">
-  <a href="https://media.discordapp.net/attachments/1169811007942709318/1364747611524825099/Untitled1841_20250423193940.png?ex=680acbc2&is=68097a42&hm=de1cd8814eaa8a237130fab7c31c5850db01bce50d0d7c4aa6d259d03306e18a&=&format=webp&quality=lossless&width=1046&height=716"><img width="500" src="https://media.discordapp.net/attachments/1169811007942709318/1364747611524825099/Untitled1841_20250423193940.png?ex=680acbc2&is=68097a42&hm=de1cd8814eaa8a237130fab7c31c5850db01bce50d0d7c4aa6d259d03306e18a&=&format=webp&quality=lossless&width=1046&height=716" alt="Customized Josh Dun icon taken from the Fairly Local MV."></a>
+  <a href="[https://media.discordapp.net/attachments/1169811007942709318/1364747611524825099/Untitled1841_20250423193940.png?ex=680acbc2&is=68097a42&hm=de1cd8814eaa8a237130fab7c31c5850db01bce50d0d7c4aa6d259d03306e18a&=&format=webp&quality=lossless&width=1046&height=716"><img width="500" src="https://media.discordapp.net/attachments/1169811007942709318/1364747611524825099/Untitled1841_20250423193940.png?ex=680acbc2&is=68097a42&hm=de1cd8814eaa8a237130fab7c31c5850db01bce50d0d7c4aa6d259d03306e18a&=&format=webp&quality=lossless&width=1046&height=716" alt="Customized Josh Dun icon taken from the Fairly Local MV.](https://i.pinimg.com/736x/1b/29/5f/1b295f1ed882ffb76e5bddb9b2e6ae58.jpg)"></a>
 </div> 
 
 <div align="center">
