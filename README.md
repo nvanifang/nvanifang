@@ -1,9 +1,9 @@
 <p align="center">
-  <img width="690" height="450" src="https://media.discordapp.net/attachments/1169811007942709318/1507553351393611827/1b295f1ed882ffb76e5bddb9b2e6ae58.png?ex=6a1251f7&is=6a110077&hm=d4cb4f8da67cd4d4efc5d1976c6e5d03226346b927c7af5701c8adda040838fb&=&format=webp&quality=lossless">
+  <img width="690" height="450" src="https://i.postimg.cc/j2CnHXLc/Madoka.jpg">
 </p>
 
 <p align="center">
-  <img width="690" src="https://64.media.tumblr.com/222a9e5110768f1f8d19a1ed3b494dd6/779aa251fd339498-5a/s2048x3072/f5c29d782779149c9249c8c09a44f2be9c03bed5.pnj">
+  <img width="690" src="https://files.catbox.moe/0iz79c.gif">
 </p>
 
  <p align="center">
