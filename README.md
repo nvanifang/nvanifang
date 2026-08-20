@@ -1,9 +1,9 @@
 <p align="center">
-  <img width="690" height="450" src="https://i.postimg.cc/j2CnHXLc/Madoka.jpg">
+  <img width="450" height="450" src="https://i.postimg.cc/j2CnHXLc/Madoka.jpg">
 </p>
 
 <p align="center">
-  <img width="690" src="https://files.catbox.moe/0iz79c.gif">
+  <img width="450" src="https://files.catbox.moe/0iz79c.gif">
 </p>
 
  <p align="center">
