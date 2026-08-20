@@ -9,8 +9,6 @@
  <p align="center">
 nvani  ᶻ 𝗓 𐰁  "   nivi / nivs   "</p>
  <p align="center">
-they ⸝⸝  it lun  (  +  he  )</p>
- <p align="center">
 ⌞ librafluid ⌝  unlabeled</p>
  <p align="center">
 ۶۟ৎ  regiment lover  .   junior </p>
