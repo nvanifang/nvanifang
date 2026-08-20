@@ -7,7 +7,7 @@
 </p>
 
  <p align="center">
-NVANI  ᶻ 𝗓 𐰁  "   clementine   "</p>
+nvani  ᶻ 𝗓 𐰁  "   <img src="https://64.media.tumblr.com/200f73655bb73242f39fae96d291d094/tumblr_pl1jv0fQrH1xx06kxo4_100.gifv">   "</p>
  <p align="center">
 they ⸝⸝  it lun  (  +  he  )</p>
  <p align="center">
