@@ -7,15 +7,19 @@
 </p>
 
  <p align="center">
-nvani  ᶻ 𝗓 𐰁  "   <img src="https://64.media.tumblr.com/200f73655bb73242f39fae96d291d094/tumblr_pl1jv0fQrH1xx06kxo4_100.gifv">   "</p>
+nvani  ᶻ 𝗓 𐰁  "   nivi / nivs   "</p>
  <p align="center">
 they ⸝⸝  it lun  (  +  he  )</p>
  <p align="center">
 ⌞ librafluid ⌝  unlabeled</p>
  <p align="center">
-۶۟ৎ  regiment lover  .   highschooler</p>
+۶۟ৎ  regiment lover  .   junior </p>
  <p align="center">
 ₍^. .^₎Ⳋ</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/200f73655bb73242f39fae96d291d094/tumblr_pl1jv0fQrH1xx06kxo4_100.gifv">
+</p>
 
 <p align="center">
 <a href="https://hits.sh/github.com/nvanifang/hits/"><img alt="Hits" src="https://hits.sh/github.com/nvanifang/hits.svg?label=visitors&color=9f9f9f"/></a>
