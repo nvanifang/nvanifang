@@ -25,5 +25,5 @@ nvani  ᶻ 𝗓 𐰁  "   nivi / nivs   "</p>
 
 <p align="center"
   
-![sign my ata](https://nvani.atabook.org/)
+<a href="https://nvani.atabook.org/">sign my ata</a>
 
